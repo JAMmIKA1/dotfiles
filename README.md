@@ -1,3 +1,3 @@
 # dotfiles
 
-https://imgur.com/a/dERkUSI
+https://imgur.com/a/dERkUSI.mp4
