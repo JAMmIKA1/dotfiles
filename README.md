@@ -1,3 +1,3 @@
 # dotfiles
 
-https://imgur.com/a/dERkUSI.mp4
+https://i.imgur.com/3dLwYm0.mp4
