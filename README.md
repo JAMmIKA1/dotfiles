@@ -1,2 +1,2 @@
 # dotfiles
-![Uploading new_scr-2024-03-17_16.25.14(1).gif…]()
+![https://i.imgur.com/3dLwYm0.mp4]()
